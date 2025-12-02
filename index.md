@@ -85,6 +85,13 @@ An underground parking space is included in the rental price.
 * Couples
 * Students
 
+# Contacts
+
+Tel.: +436503484035 (Ivan)
+<br>
+Email: zorin.ial@gmail.com
+
+
 # Photos
 
 **Photo 1**
