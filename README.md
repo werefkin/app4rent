@@ -88,6 +88,7 @@ An underground parking space is included in the rental price.
 # Contacts
 
 Tel.: +436503484035 (Ivan)
+<br>
 Email: zorin.ial@gmail.com
 
 
