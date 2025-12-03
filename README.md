@@ -1,4 +1,4 @@
-# 🏡 **Helle 2-Zimmer-Wohnung mit Tiefgarage in Linz-Urfahr (Gründberg)**
+# 🏡 **Helle 2-Zimmer-Wohnung mit Tiefgarage in Linz-Urfahr/St. Magdalena (Gründberg)**
 
 # English version below
 
@@ -44,7 +44,7 @@ Zur Wohnung gehört ein **Tiefgaragenstellplatz**, der **bereits im Mietpreis in
 
 ---
 
-# 🏡 Bright 2-Room Apartment with Underground Parking in Linz-Urfahr (Gründberg)
+# 🏡 Bright 2-Room Apartment with Underground Parking in Linz-Urfahr/St. Magdalena (Gründberg)
 
 This bright and well-maintained 2-room apartment with approx. 49 m² is located on the 2nd floor of a residential building in Linz-Urfahr. The rooms are full of natural light (big windows) and warm – ideal for a comfortable home.
 
